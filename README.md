@@ -12,7 +12,7 @@ El mundo de los videojuegos es una de mis grandes pasiones, especialmente el ent
 
 * **Juego Favorito:** Fortnite (Modo Competitivo).
 * **Streaming:** Me encanta transmitir en vivo los torneos de Fortnite.
-* **Comunidad:** Puedes seguirme y acompañarme en mis directos con mi usuario: *`Emivicman`*.
+* **Comunidad:** Puedes seguirme y acompañarme en mis directos con mi usuario: **`Emivicman`**.
 
 ---
 
